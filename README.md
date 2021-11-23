@@ -6,5 +6,7 @@ feff
 jshj
 hello world 
 
-SABAHLARI SEVERİM OLDUM BİTTİM.
+d1204-Ömer Faruk
 
+
+SABAHLARI SEVERİM
