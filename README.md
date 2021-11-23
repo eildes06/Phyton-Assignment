@@ -10,3 +10,4 @@ d1204-Ömer Faruk
 
 
 SABAHLARI SEVERİM
+oldumu anlamadim
